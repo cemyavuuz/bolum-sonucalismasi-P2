@@ -1,0 +1,1 @@
+# bolum-sonucalismasi-P2
